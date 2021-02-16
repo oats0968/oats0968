@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @oats0968
+- 👀 I’m interested in computing, cars, and Formula 1.
+- 🌱 I’m currently learning python, but I also want to learn java and HTML.
+- 💞️ I’m looking to collaborate on school projects and nothing too difficult (i'm a beginner but I plan to expand)
+- 📫 How to reach me: Discord - oats #0968
